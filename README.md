@@ -1,2 +1,2 @@
 # Infografico_Hard_Soft_Skills_ADS
-Esse repositório....
+Esse repositório [acesse aqui](https://www.canva.com/)
